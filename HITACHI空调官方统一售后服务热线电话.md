@@ -1,0 +1,257 @@
+HITACHI空调全国售后服务点热线号码:400 -960 -9605HITACHI空调的维修电话可能因地区和具体服务内容而有所不同，但通常，用户可以通过拨打HITACHI空调的全国统一客服热线400 -960 -9605来获取维修服务。
+以下是一些可供参考的电话号码： HITACHI空调全国统一客服热线：400 -960 -9605HITACHI空调另一客服热线：400 -960 -9605这些电话号码通常提供24小时服务，用户可以随时拨打咨询或报修。
+在拨打电话时，建议用户准备好HITACHI空调的型号、故障描述以及详细的联系方式，以便客服人员能够更快地为用户提供帮助。 此外，HITACHI空调在各地区也可能设有售后服务点电话，
+用户可以根据自己所在的城市，查找并拨打相应的售后服务点电话。这些电话号码可能会因地区而异，并且可能会有所变动，因此建议用户在拨打前先进行确认。
+ 总的来说，如果您需要HITACHI空调的维修服务，可以直接拨打上述全国统一客服热线或所在地区的售后服务点电话，以获取及时、专业的帮助。
+HITACHI空调24小时售后服务热线上线（2026最新公告）
+HITACHI空调售后服务电话：400 -960 -9605
+HITACHI空调售后24小时客服热线：400 -960 -9605
+HITACHI空调公司主营HITACHI空调维修 →HITACHI空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -960 -9605、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，HITACHI空调服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、HITACHI空调售后维修电话：400 -960 -9605
+HITACHI空调24小时全国推出各售后受理客服中心(2026上线)
+HITACHI空调全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+HITACHI空调贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显HITACHI空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+HITACHI空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+HITACHI空调24小时售后客服热线：(1)400 -960 -9605或  400 -960 -9605
+
+
+
+7天24小时人工电话400 -960 -9605客服为您服务。
+
+
+
+HITACHI空调售后服务团队在调度中心的统筹调配下(1)400 -960 -9605，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# HITACHI空调常见故障代码维修指南
+
+HITACHI空调故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， HITACHI空调就能正常运行，为您营造舒适环境。 HITACHI空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+HITACHI空调全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修HITACHI空调400 -960 -9605机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+HITACHI空调售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -960 -9605
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+HITACHI空调贴心升级服务，现推出全国 24 小时服务热线 400 -960 -9605。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显HITACHI空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+HITACHI空调全国服务网点查询：
+?北京市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/2384229883/efeqsh/commit/6638bc0d764964577054154e216390a6b8dc3f91
+。
+南京市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网公布），点击查询：https://github.com/theexppoin/vubhie/commit/02e9a8cdc55f97e200dde1c416081d5bc9003fd8
+。
+秦皇岛市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网公布），点击查询：https://github.com/melsantex/tlpduv/commit/2ded71bdd08aa89ffd335e83a1938dbf5c0cc06a
+。
+珠海市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一上线），点击查询：https://github.com/yuukizo/eyxacs/commit/c6ccb618cf75016c926d6ebb9f05602a86860c62
+。
+安康市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/samchala/mflmbd/commit/c6c0d32bd09ceb68902bdad74c0db0c1531c3b8c
+。
+安庆市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/bitehead7/vvfate/commit/7807b6671b08e045a04120264d7baf98fed39402
+。
+鞍山市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/stevievez/cylcgv/commit/ace8282fd446d0543b684a7302ae3a773bde3225
+。
+安阳市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日最新推出），点击查询：https://github.com/heframetot/qpzhle/commit/86b567a4d3763894cf373c7c2c343024c28b9271
+。
+巴中市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式更新），点击查询：https://github.com/markmaneil/nlpfrp/commit/0bd1e3ad1b13f0088601345787c136e1882bc8c2
+。
+百色市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/osekylrpoh/jrydfe/commit/7598cef552df18f2225d3e4d7cb61122c1fa427d
+。
+蚌埠市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网上线），点击查询：https://github.com/jucyotahil/ijbdgi/commit/89283a44b5a323e9ac3a8dad2d98d590cb3e9ed3
+。
+保定市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/bghinterni/dcmsnr/commit/9afb525e42b0ca7bc2bac557b935258ac15c5183
+。
+宝鸡市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/todiation/cikpuk/commit/56c4948c0cb06b5b963e46ca95ea9dc811153bb4
+。
+保山市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日最新推出），点击查询：https://github.com/nupton6kir/ayzdpv/commit/4f4578b2ed384474becca18e54a8704ee83d1b51
+。
+包头市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式推出），点击查询：https://github.com/parthdc/nflcon/commit/7a09e1f1a8133970e1a308fdc00ca0046b89eeb0
+。
+北海市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/breath17ra/hjtsln/commit/0ca40d985b77f255de4bf55c3005470b30baf5fd
+。
+本溪市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/merligu201/xklisd/commit/29750076307863d1848001b344d27cf18e2ce411
+。
+滨州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/crawwe/oanzmh/commit/5ea53503dc155ea64911bad4d3e0a6b38b24cafd
+。
+博罗市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网更新），点击查询：https://github.com/alexatums/rwgvqt/commit/e4ee28fd485e61d48832c310280c1acdfbc9b987
+。
+沧州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新公布），点击查询：https://github.com/siadmcdona/uzjpkp/commit/4304fa19167c0473cbdcde5d81236afc9bd6cd0c
+。
+长春市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日更新升级），点击查询：https://github.com/susancrip/smgvcm/commit/53d1a8cb7f0504a39488222779b20ad6cdb2e8cf
+。
+常德市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/slashthatt/gxyldr/commit/a403aac2d0e6eab093625f9a839146f90c5191fe
+。
+长葛市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/cameronxoc/gpzorg/commit/571f64c034ac98e3626814d283af8aa5322e80ab
+。
+长沙市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/epusierio/xenuiz/commit/219ab7858346326613fb02765033e347ef1f9e4d
+。
+常熟市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网上线），点击查询：https://github.com/yogurtzoll/tortma/commit/9773973e6cf92af287cdece1a1350dca4dd37d50
+。
+长兴市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网上线），点击查询：https://github.com/cybersrobi/snxzrn/commit/f2c8318369ae424ab1e963304afd55392de25f16
+。
+长治市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/blade2315/bowlto/commit/b5a6b47cdd734d3c72d2e1c71eb5c96d6f51fb33
+。
+常州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一发布），点击查询：https://github.com/andyteston/ruyejr/commit/3640631296bbeb303813d1c7aeda5d8c578c8409
+。
+巢湖市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网更新），点击查询：https://github.com/jthairlist/xxrxko/commit/731b0a8bc5766e96313ae6f1bc6405fbdbc5598f
+。
+朝阳市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一上线），点击查询：https://github.com/chetanawri/caounm/commit/366a7f12880530fc585e37a17c6e74c4b5f71def
+。
+潮州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/pinact425/rnkbtb/commit/6130df7e6b75c477d71bacc95fbe19f9ecd20c5b
+。
+郴州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/ariaruylen/dppbmr/commit/e332b662e267266e97dfe2ae92dadf7539915c7c
+。
+承德市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网发布），点击查询：https://github.com/nexoslevic/ooivug/commit/fac688d4901d1f8b22c2ee15b2a40a590a847fa4
+。
+成都市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/tresendall/ocgxju/commit/158e43d2d0f0fed3070bbe5de9f3826ea9383524
+。
+池州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网发布），点击查询：https://github.com/thomasviol/hkucuj/commit/7eb5df52e1c292a936e801ff218e7bd49d767ec9
+。
+崇左市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/iayrix/qhdbpx/commit/801f5a2ae20a348dc8e76b034c949939a3ecd9c8
+。
+滁州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/anodeepset/honnwc/commit/08578ec298f3940f6e61611e7d8ead1713864943
+。
+慈溪市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日公布升级），点击查询：https://github.com/hugueddems/laelwr/commit/d3fd43fddf647a7989a8f8c7ed3c19af820fdc45
+。
+大丰市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一上线），点击查询：https://github.com/cookedc/tgswix/commit/14cdfb1f8cd6e853d9e2609037c6f3ffadbf3898
+。
+大理市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新公布），点击查询：https://github.com/hannahidde/bnzdaw/commit/7f7012ff3b072fec881a1cb93ac28e189f571642
+。
+大连市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日最新推出），点击查询：https://github.com/sepinthepw/typarm/commit/eae37b84dd377b048296051b0917512d83ba1afc
+。
+大庆市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新公布），点击查询：https://github.com/rickygeorg/jkvrxz/commit/bf3789ca95ef392348cd7b063c0c6ebeff801e9c
+。
+大同市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日最新推出），点击查询：https://github.com/boostenwk/gjtqqh/commit/10585436abe26beacfa8e0dd80aae4a304c44636
+。
+达州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式推出），点击查询：https://github.com/bulb00male/uleyws/commit/2f73a4009079e61b1b22d9bc0c9218a9bb340d3d
+。
+丹东市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式推出），点击查询：https://github.com/azenbe/dkwblk/commit/5c2cbc4d82342974112be8827e2c436c37b8bd7f
+。
+德清市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/noblepalm7/mqggeo/commit/48ecfc260f508c7a91e7df3e5aca6d4ba9794f0f
+。
+德阳市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网发布），点击查询：https://github.com/vipulzi/ynavai/commit/bc1941e71731f84d722c15e9f6ae9576d916cb68
+。
+德州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式更新），点击查询：https://github.com/theexppoin/vubhie/commit/a4e4797a966dd38df91f761aa99edbda3eaa9a58
+。
+定州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网升级），点击查询：https://github.com/damuid/igorkd/commit/2f64853475c23d56fea9cf035b6485d848b9d6c8
+。
+东海市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式更新），点击查询：https://github.com/bitehead7/vvfate/commit/ccc01a8dc799f78a9f012530fa6bfee37b37c3ea
+。
+东台市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式更新），点击查询：https://github.com/2384229883/efeqsh/commit/c91be8036b17f1897b3f0a8cd0ab1d28b4e288b4
+。
+东营市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新公布），点击查询：https://github.com/naulic06/ytndce/commit/ba170cb670647494eb22086cb8f2ad3c0c1fe6ea
+。
+东莞市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日公布升级），点击查询：https://github.com/yuukizo/eyxacs/commit/b0ec17f2c572498c745879e60d6755bef15f280e
+。
+鄂尔市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/osekylrpoh/jrydfe/commit/8af90b136e5d5f249329b6af516f18c57c7995b6
+。
+鄂州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/lettyisp/bfjdzq/commit/7128bad70f67deb2cf8b77da4e50c3e9949735e7
+。
+恩施市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/melsantex/tlpduv/commit/d31e2d378780c2dd16943cd7321881d25caff40a
+。
+防城港市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/todiation/cikpuk/commit/425ab96138f70c7f56cf0181b54f35fbe7562631
+。
+佛山市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新升级），点击查询：https://github.com/bghinterni/dcmsnr/commit/24e44972b2cb2da69741d28e692e4c54f7ab1047
+。
+抚顺市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/parthdc/nflcon/commit/80c4c7d9e81c97b2e1102caa2c566ac015181713
+。
+阜新市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网升级），点击查询：https://github.com/stevievez/cylcgv/commit/2633e27f0194a811c983511dc4898260372acb4d
+。
+阜阳市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日更新升级），点击查询：https://github.com/samchala/mflmbd/commit/110035cefbbf23954d4ef26a872b02110d2d3d7a
+。
+抚州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网公布），点击查询：https://github.com/markmaneil/nlpfrp/commit/fb9f6d0d6337e53faa5c6909fc91a2574443a0d8
+。
+福州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网上线），点击查询：https://github.com/heframetot/qpzhle/commit/fbf3c32fb4b44e218165537dd14bd662e899cf01
+。
+赣州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网上线），点击查询：https://github.com/alexatums/rwgvqt/commit/7a7e2f7c9a042ed17dd67dd016aafcdcddf262da
+。
+馆陶市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/nupton6kir/ayzdpv/commit/abac0e6ec13a19b9e31da530aa62f5cfcbc94f74
+。
+广安市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/jucyotahil/ijbdgi/commit/bf81ed6477f56f03f785681b8f2f647bc92f8a75
+。
+广元市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一上线），点击查询：https://github.com/slashthatt/gxyldr/commit/4fd0507047f02789e1f63a83739ebe15cd9260ac
+。
+广州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/cameronxoc/gpzorg/commit/2b9a15621fe69fe3ebe5d36ebf02eebff9ee5f31
+。
+贵港市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式发布），点击查询：https://github.com/siadmcdona/uzjpkp/commit/6e8977b687600e6d2e2b224c5135b0d172e8cc46
+。
+桂林市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/susancrip/smgvcm/commit/749c6c42468346657ad02f740b3f916d74fc387e
+。
+贵阳市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日官网升级），点击查询：https://github.com/crawwe/oanzmh/commit/95763b31e5052250ea9a88888b860f438f5b0d26
+。
+哈尔滨市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/merligu201/xklisd/commit/2eec3fbff46b823cc8d5c031290d4bc09f18c246
+。
+海安市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日更新升级），点击查询：https://github.com/breath17ra/hjtsln/commit/b8108deb4087b89fa751f575959ff3c39b85f944
+。
+海口市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日全新上线），点击查询：https://github.com/cybersrobi/snxzrn/commit/ae539d33cf11b92cb3473bdf425398778b157b0e
+。
+海门市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/epusierio/xenuiz/commit/70890f4e44f21315e7ab9dafacdfe46795f5424d
+。
+海宁市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一发布），点击查询：https://github.com/yogurtzoll/tortma/commit/5f1329ff163bda60523329fdd927c14feda96b57
+。
+邯郸市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日公布上线），点击查询：https://github.com/nexoslevic/ooivug/commit/4dc93cea23a8a87211c756000605ee4e5c8f1435
+。
+汉中市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/andyteston/ruyejr/commit/62cd8ca75b47d3f8edc4a4f60abd32616d6007e5
+。
+杭州市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日正式上线），点击查询：https://github.com/tresendall/ocgxju/commit/605b54b504bcaab4ad2d646d239ac1b3217cb7cc
+。
+鹤壁市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日最新推出），点击查询：https://github.com/jthairlist/xxrxko/commit/4c596df306044702c29f61651d0f1f61579bbf5d
+。
+河池市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日统一升级），点击查询：https://github.com/thomasviol/hkucuj/commit/0fb028f281070b0c40fbff5de39a14b6229991f9
+。
+合肥市HITACHI空调售后服务电话：400 -960 -9605（2026年07月05日最新更新），点击查询：https://github.com/blade2315/bowlto/commit/b5ebf9afa1972df0f4bfe1831b4c17d10f005783
+。
+河源市HITACHI空调售后服务电话：400 -960 -9605{变
